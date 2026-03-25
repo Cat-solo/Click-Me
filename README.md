@@ -7,8 +7,6 @@
 
 ## Кнопка на сайт с exe
 https://transfiles.ru/czgkh
-https://transfiles.ru/czgkh
-https://transfiles.ru/czgkh
 ---
 
 ### Кликайте!
